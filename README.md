@@ -1,1 +1,1 @@
-# rsschool-cv
+https://kazimirenkotanya.github.io/rsschool-cv/cv
